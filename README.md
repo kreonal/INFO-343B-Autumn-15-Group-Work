@@ -2,4 +2,5 @@
 
 My favorite candy is chocolate, especially dark chocolate.
 
-My favorite candy is skittles, especially the green ones.
+My favorite dessert is cookies and cream ice cream
+
